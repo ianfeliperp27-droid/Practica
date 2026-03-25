@@ -1,3 +1,1 @@
-Ian Felipe Ramos Paez
-Juan Sebasian Cepeda Moreno :
-Es el rey de la universidad Catolica
+Ian Felipe Ramos le gusta martica y jua jose es su amor verdadero 🤣😂😊😍
