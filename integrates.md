@@ -1,1 +1,3 @@
-Ian Felipe Ramos le gusta martica y jua jose es su amor verdadero 🤣😂😊😍
+Ian Felipe Ramos Paez
+Juan Sebasian Cepeda Moreno :
+Bro no seas tan down
